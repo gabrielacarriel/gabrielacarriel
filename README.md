@@ -4,5 +4,5 @@
 
  
 - Desenvolvimento de sistemas / Etec
-- Front-end 
+- Front-end em progresso
 -  ∞ ⊹ ࣪ 🎀 ˖ ࣪ ⊹ ୨୧
