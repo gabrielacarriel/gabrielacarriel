@@ -5,4 +5,4 @@
  
 - Desenvolvimento de sistemas / Etec
 - Front-end 
--  ∞ ⊹ ࣪ 🎀 ˖ ࣪ ⊹
+-  ∞ ⊹ ࣪ 🎀 ˖ ࣪ ⊹ ୨୧
