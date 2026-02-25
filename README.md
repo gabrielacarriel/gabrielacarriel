@@ -1,6 +1,7 @@
 ##  ୨୧  Olá👋
 
 
-- Desenvolvimento de sistemas / Etec de Registro
+- Etec de Registro
+- Desenvolvimento de sistemas  
 - Front-end em progresso
 -  ∞ ⊹ ࣪ 🎀 ˖ ࣪ ⊹ ୨୧
